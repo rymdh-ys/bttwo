@@ -3,7 +3,7 @@
 两个BT是一个专注于影视资源在线播放与下载的网站，提供丰富多样的高清影视内容，涵盖最新电影、国产剧、美剧、日剧、韩剧、动漫番剧等多种类型。该网站以简洁的页面设计和无广告干扰的观看体验受到用户喜爱，用户无需注册即可直接观看大部分内容。虽然名为“两个BT”，但其资源以在线观看为主，部分资源也提供BT种子下载。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14353.htmll" target="_blank" ><strong>两个BT最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshizaixiankan" target="_blank" ><strong>影视资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
